@@ -8,7 +8,7 @@
 
 ## Detailed Overview
 
-If you want to see my working project\
+If you want to see my working project:-
 
 Please visit my linkedin account:- **linkedin.com/in/athul-nediyedath-746a78211**
 
