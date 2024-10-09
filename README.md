@@ -10,6 +10,6 @@
 
 If you want to see my working project:-
 
-Please visit my linkedin account:- **linkedin.com/in/athul-nediyedath-746a78211**
+Please visit my linkedin account:- **https://linkedin.com/in/athul-nediyedath-746a78211**
 
 
